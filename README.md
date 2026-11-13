@@ -1,1 +1,5 @@
-# 26-27-lamarUniversity-robotics
+Ryan's Section:
+
+Thomas' Section:
+
+Yotzin's Section:
